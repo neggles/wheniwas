@@ -73,3 +73,4 @@ just a man, i'm not a hero
 i don't care  
 we'll carry on, we'll carry on  
 and though you're dead and gone, believe me  
+your memory will carry on  
