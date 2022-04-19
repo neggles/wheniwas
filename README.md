@@ -45,3 +45,4 @@ a world that sends you reelin'
 from decimated dreams  
 your misery and hate will kill us all  
 so paint it black and take it back  
+let's shout it loud and clear  
