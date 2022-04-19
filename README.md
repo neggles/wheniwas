@@ -47,3 +47,4 @@ your misery and hate will kill us all
 so paint it black and take it back  
 let's shout it loud and clear  
 defiant to the end, we hear the call  
+to carry on,  
