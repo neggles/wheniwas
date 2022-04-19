@@ -62,3 +62,4 @@ take a look at me, 'cause i could not care at all
 do or die, you'll never make me  
 because the world will never take my heart  
 go and try, you'll never break me  
+we want it all, we wanna play this part  
