@@ -11,3 +11,4 @@ the beaten and the damned?"
 he said, "will you   
 defeat them?  
 your demons,   
+and all the non-believers  
