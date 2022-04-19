@@ -80,3 +80,4 @@ your weary widow marches, oh
 do or die, you'll never make me  
 because the world will never take my heart  
 go and try, you'll never break me  
+we want it all, we wanna play this part (we'll carry on)  
