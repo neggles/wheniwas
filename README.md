@@ -79,3 +79,4 @@ and though you're broken and defeated
 your weary widow marches, oh  
 do or die, you'll never make me  
 because the world will never take my heart  
+go and try, you'll never break me  
