@@ -65,3 +65,4 @@ go and try, you'll never break me
 we want it all, we wanna play this part  
 i won't explain or say i'm sorry  
 i'm unashamed, i'm gonna show my scars  
+give a cheer for all the broken  
