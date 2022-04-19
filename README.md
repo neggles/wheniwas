@@ -9,3 +9,4 @@ would you be
 the savior of the broken  
 the beaten and the damned?"  
 he said, "will you   
+defeat them?  
