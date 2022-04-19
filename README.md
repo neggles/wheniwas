@@ -60,3 +60,4 @@ disappointed faces of your peers
 oh, ah, ha  
 take a look at me, 'cause i could not care at all  
 do or die, you'll never make me  
+because the world will never take my heart  
