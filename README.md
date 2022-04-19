@@ -69,3 +69,4 @@ give a cheer for all the broken
 listen here, because it's who we are  
 just a man, i'm not a hero  
 just a boy, who had to sing this song  
+just a man, i'm not a hero  
