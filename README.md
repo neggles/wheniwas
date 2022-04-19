@@ -54,3 +54,4 @@ your memory will carry on
 we'll carry on  
 and though you're broken and defeated  
 your weary widow marches  
+on and on, we carry through the fears  
