@@ -17,3 +17,4 @@ the plans that they have made?"
 i'll leave you  
 a phantom  
 to lead you in the summer  
+to join the black parade"  
