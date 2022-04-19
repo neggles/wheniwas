@@ -43,3 +43,4 @@ and in my heart, i can't contain it
 the anthem won't explain it  
 a world that sends you reelin'  
 from decimated dreams  
+your misery and hate will kill us all  
