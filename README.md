@@ -12,3 +12,4 @@ he said, "will you
 defeat them?  
 your demons,   
 and all the non-believers  
+the plans that they have made?"  
