@@ -34,3 +34,4 @@ and other times i feel like i should go
 and through it all, the rise and fall  
 the bodies in the streets  
 and when you're gone, we want you all to know  
+we'll carry on,  
