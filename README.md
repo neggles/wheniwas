@@ -77,3 +77,4 @@ your memory will carry on
 you'll carry on  
 and though you're broken and defeated  
 your weary widow marches, oh  
+do or die, you'll never make me  
