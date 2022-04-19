@@ -68,3 +68,4 @@ i'm unashamed, i'm gonna show my scars
 give a cheer for all the broken  
 listen here, because it's who we are  
 just a man, i'm not a hero  
+just a boy, who had to sing this song  
