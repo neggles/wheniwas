@@ -16,3 +16,4 @@ the plans that they have made?"
 "because one day,   
 i'll leave you  
 a phantom  
+to lead you in the summer  
