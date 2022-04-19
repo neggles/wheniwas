@@ -52,3 +52,4 @@ we'll carry on
 and though you're dead and gone, believe me  
 your memory will carry on  
 we'll carry on  
+and though you're broken and defeated  
