@@ -57,3 +57,4 @@ your weary widow marches
 on and on, we carry through the fears  
 oh, ah, ha  
 disappointed faces of your peers  
+oh, ah, ha  
